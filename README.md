@@ -2,17 +2,16 @@
 <div id=header align=center>
       <img src=https://file.garden/aKzMGI-7QmDUaY89/githeader.png width=65%>
     </div>
-    
+   
 <div id=desc align=center>
     <a href="https://hits.sh/github.com/sanguinesilence/hits/"><img alt="visitors" src="https://hits.sh/github.com/sanguinesilence/hits.svg?label=necks%20bitten&color=2D000A&labelColor=4F0315"/></a>
     <br>
 <br>
-<p id=basic>
-      $\textcolor{64182A}{\textsf{Residential Vampire ⋆ ADULT ⋆ Blot/Sprout Fictkin}}$
-      
+<p id=basic> <img src=https://file.garden/aKzMGI-7QmDUaY89/emoji%20stuff/red/5a4defba.gif> 
+$\textcolor{#A7203F}{\textsf{Residential Vampire ⋆ ADULT ⋆ Blot/Sprout Fictkin}}$   
 </p>
 <details>
-      <summary>$\textcolor{red}{\textsf{Colored summary}}$</summary>
+      <summary>$\textcolor{red}{\textsf{Blinkies and Stamps}}$</summary>
 </details>
 </div>
     
