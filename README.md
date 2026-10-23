@@ -1,6 +1,6 @@
 
 <div id=header align=center>
-      <img src=https://file.garden/aKzMGI-7QmDUaY89/githeaderr.png width=60%>
+      <img src=https://file.garden/aKzMGI-7QmDUaY89/githeaderr.png width=78%>
     </div>
    
 <div id=desc align=center>
@@ -48,5 +48,5 @@ $\textcolor{#87132E}{\textsf{Residential Vampire ⋆ ADULT ⋆ Blot/Sprout Fictk
       <img src=https://file.garden/aKzMGI-7QmDUaY89/flora.png>
 </div>   
 <div id=footer align=center>
-      <img src=https://file.garden/aKzMGI-7QmDUaY89/gitfooterr.png width=60%>
+      <img src=https://file.garden/aKzMGI-7QmDUaY89/gitfooterr.png width=78%>
     </div>
