@@ -8,7 +8,7 @@
     <br>
 <br>
 <p id=basic>
-      Residential Vampire ⋆ ADULT ⋆ Blot/Sprout Fictkin
+      $\textcolor{64182A}{\textsf{Residential Vampire ⋆ ADULT ⋆ Blot/Sprout Fictkin}}$
       
 </p>
 <details>
