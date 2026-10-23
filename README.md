@@ -18,5 +18,5 @@ $\textcolor{#A7203F}{\textsf{Residential Vampire ⋆ ADULT ⋆ Blot/Sprout Fictk
 </div>
     
 <div id=footer align=center>
-      <img src=https://file.garden/aKzMGI-7QmDUaY89/gitfooter.png width=55%>
+      <img src=width=55%>
     </div>
