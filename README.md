@@ -6,11 +6,10 @@
 <div id=desc align=center>
       <img src=https://file.garden/aKzMGI-7QmDUaY89/divs/guh.gif><br>
       <br>
-    <a href="https://hits.sh/github.com/sanguinesilence/hits/"><img alt="visitors" src="https://hits.sh/github.com/sanguinesilence/hits.svg?label=necks%20bitten&color=2D000A&labelColor=4F0315"/></a>
-    <br>
+    <a href="https://hits.sh/github.com/sanguinesilence/hits/"><img alt="visitors" src="https://hits.sh/github.com/sanguinesilence/hits.svg?label=necks%20bitten&color=2D000A&labelColor=4F0315"/></a>  <img src=https://file.garden/aKzMGI-7QmDUaY89/emoji%20stuff/red/5a4defba.gif>ㅤㅤ$\textcolor{#A7203F}{\textsf{‧₊˚ ⋅}}$ㅤㅤ  <img src=https://file.garden/aKzMGI-7QmDUaY89/15659eedcb396d54a4b8c4d097e7cd5de159ed8a.pnj title="by @resourcesiero">ㅤㅤ  ㅤ<br>
       <img src=https://file.garden/aKzMGI-7QmDUaY89/tumblr_inline_o03jvqFlhi1te58qi_500.gif>
 <br>
-<p id=basic> <img src=https://file.garden/aKzMGI-7QmDUaY89/emoji%20stuff/red/5a4defba.gif> 
+<p id=basic>  
 $\textcolor{#A7203F}{\textsf{Residential Vampire ⋆ ADULT ⋆ Blot/Sprout Fictkin}}$
      <br> $\textcolor{#A7203F}{\textsf{꒷꒦︶}}$ 
 </p>
