@@ -15,6 +15,7 @@ $\textcolor{#87132E}{\textsf{╰┈➤}}$ <img src=https://file.garden/aKzMGI-7Q
     <br> 
 $\textcolor{#87132E}{\textsf{Residential Vampire ⋆ ADULT ⋆ Blot/Sprout Fictkin}}$
      <br> $\textcolor{#87132E}{\textsf{꒷꒦︶}}$ 
+           $\textcolor{#87132E}{\textsf{Inspo is okay, but NEVER fully copy my skins.}}$
 </p>
       <img src=https://file.garden/aKzMGI-7QmDUaY89/divs/crossess.gif>
 <details>
