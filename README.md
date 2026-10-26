@@ -17,8 +17,8 @@ $\textcolor{#87132E}{\textsf{Residential Vampire ⋆ ADULT ⋆ Blot/Sprout Fictk
      <br> $\textcolor{#87132E}{\textsf{꒷꒦︶}}$ 
            $\textcolor{#87132E}{\textsf{Inspo is okay, but NEVER fully copy my skins.}}$
 </p>
-      <img src=https://file.garden/aKzMGI-7QmDUaY89/divs/crossess.gif>
-      <a href="https://github.com/THE-TEMPIST#:~:text=%40sanguinesilence,Blot%20(DANDY%E2%80%99S%20WORLD)"><img src=https://file.garden/aKzMGI-7QmDUaY89/pngs/image_2026-10-25_233935448.png></a>
+      <img src=https://file.garden/aKzMGI-7QmDUaY89/divs/crossess.gif><br>
+      <a href="https://github.com/THE-TEMPIST#:~:text=%40sanguinesilence,Blot%20(DANDY%E2%80%99S%20WORLD)"><img src=https://file.garden/aKzMGI-7QmDUaY89/pngs/image_2026-10-25_233935448.png width=40%></a>
 <details>
       <summary>$\textcolor{#87132E}{\textsf{Blinkies and Stamps}}$</summary>
       More will be added when I actually feel like making some lolololol
