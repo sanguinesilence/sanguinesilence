@@ -19,7 +19,7 @@ $\textcolor{#87132E}{\textsf{Residential Vampire ⋆ ADULT ⋆ Blot/Sprout Fictk
 </p>
       <img src=https://file.garden/aKzMGI-7QmDUaY89/divs/crossess.gif><br>
       <br>
-      $\textcolor{#87132E}{\textsf{꒷꒦︶}}$ <a href="https://vampyrink.straw.page/home">straw</a>] <img src=https://file.garden/aKzMGI-7QmDUaY89/emoji%20stuff/red/image_2026-10-20_215840520.png> [<a href="https://darkestnight.atabook.org/">ata</a>]<br>
+ <a href="https://vampyrink.straw.page/home">straw</a> <img src=https://file.garden/aKzMGI-7QmDUaY89/emoji%20stuff/red/image_2026-10-20_215840520.png> <a href="https://darkestnight.atabook.org/">ata</a><br>
       <br>
       <a href="https://github.com/THE-TEMPIST#:~:text=%40sanguinesilence,Blot%20(DANDY%E2%80%99S%20WORLD)"><img src=https://file.garden/aKzMGI-7QmDUaY89/pngs/image_2026-10-25_233935448.png width=50%></a>
 <details>
