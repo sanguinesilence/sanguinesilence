@@ -23,16 +23,20 @@ $\textcolor{#87132E}{\textsf{Residential Vampire ⋆ ADULT ⋆ Blot/Sprout Fictk
       <br>
       <details>
       <summary>$\textcolor{#87132E}{\textsf{〚 DNI 〛}}$</summary>
+             <img src=https://file.garden/aKzMGI-7QmDUaY89/m.png width=40%>
             <br>
            $\textcolor{#87132E}{\textsf{✦ Basic DNI (Bigots).}}$ <br>
            $\textcolor{#87132E}{\textsf{✦ Proshippers/Darkshippers.}}$ <br>
             <sup> $\textcolor{#87132E}{\textsf{(Additionally, DNI if you associate yourself with them willingly.}}$<br> $\textcolor{#87132E}{\textsf{IDGAF whether or not you are one, their ideologies are very harmful even if its under the guise of 'coping'.}}$<br> $\textcolor{#87132E}{\textsf{If you are trying to recover from such, I wish you luck. But please don't talk to or even sit near me.)}}$ </sup><br>
             $\textcolor{#87132E}{\textsf{People who are rude for no reason.}}$ <br>
+            <br>
             $\textcolor{#9E233F}{\textsf{〚 Proper DNI on my straw 〛}}$ <br>
+             <img src=https://file.garden/aKzMGI-7QmDUaY89/m.png width=40%>
              </details>
 <details>
       <summary>$\textcolor{#87132E}{\textsf{〚 Blinkies, Stamps and Nominations 〛}}$</summary><br>
       $\textcolor{#9E233F}{\textsf{More will be added when I actually feel like making some lolololol}}$
+       <br><img src=https://file.garden/aKzMGI-7QmDUaY89/m.png width=40%>
       <p>
       <br>
       <a href="https://github.com/THE-TEMPIST#:~:text=%40sanguinesilence,Blot%20(DANDY%E2%80%99S%20WORLD)"><img src=https://file.garden/aKzMGI-7QmDUaY89/image_2026-10-26_000808143.png width=50%></a><br>
