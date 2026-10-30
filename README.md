@@ -22,7 +22,13 @@ $\textcolor{#87132E}{\textsf{Residential Vampire ⋆ ADULT ⋆ Blot/Sprout Fictk
  <a href="https://vampyrink.straw.page/home">straw</a> <img src=https://file.garden/aKzMGI-7QmDUaY89/emoji%20stuff/red/image_2026-10-20_215840520.png> <a href="https://darkestnight.atabook.org/">ata</a><br>
       <br>
       <a href="https://github.com/THE-TEMPIST#:~:text=%40sanguinesilence,Blot%20(DANDY%E2%80%99S%20WORLD)"><img src=https://file.garden/aKzMGI-7QmDUaY89/image_2026-10-26_000808143.png width=50%></a><br>
-      <a href="https://github.com/piddlesjet#:~:text=Minos%20prime%20(ULTRAKILLS)%20!-,sanguinesilence,-is%20Pony%20Town%E2%80%99s"><img src=https://file.garden/aKzMGI-7QmDUaY89/image_2026-10-29_075404481.png></a>
+      <a href="https://github.com/piddlesjet#:~:text=Minos%20prime%20(ULTRAKILLS)%20!-,sanguinesilence,-is%20Pony%20Town%E2%80%99s"><img src=https://file.garden/aKzMGI-7QmDUaY89/image_2026-10-29_075404481.png></a><br>
+      <details>
+      <summary>$\textcolor{#87132E}{\textsf{DNI}}$</summary>
+           $\textcolor{#87132E}{\textsf{✦ Basic DNI (Bigots)}}$ <br>
+           $\textcolor{#87132E}{\textsf{✦ Proshippers/Darkshippers}}$ <br>
+            <sup>(Additionally, DNI if you associate yourself with them willingly. IDGAF whether or not you are one, their ideologies are very harmful even if its under the guise of 'coping'. If you are trying to recover from such, I wish you luck. But please don't talk to or even sit near me.) </sup><br>
+             </details>
 <details>
       <summary>$\textcolor{#87132E}{\textsf{Blinkies and Stamps}}$</summary>
       More will be added when I actually feel like making some lolololol
