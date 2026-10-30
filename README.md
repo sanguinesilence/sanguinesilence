@@ -22,16 +22,16 @@ $\textcolor{#87132E}{\textsf{Residential Vampire ⋆ ADULT ⋆ Blot/Sprout Fictk
  <a href="https://vampyrink.straw.page/home">straw</a> <img src=https://file.garden/aKzMGI-7QmDUaY89/emoji%20stuff/red/image_2026-10-20_215840520.png> <a href="https://darkestnight.atabook.org/">ata</a><br>
       <br>
       <details>
-      <summary>$\textcolor{#87132E}{\textsf{DNI}}$</summary>
+      <summary>$\textcolor{#87132E}{\textsf{〚 DNI 〛}}$</summary>
             <br>
            $\textcolor{#87132E}{\textsf{✦ Basic DNI (Bigots).}}$ <br>
            $\textcolor{#87132E}{\textsf{✦ Proshippers/Darkshippers.}}$ <br>
             <sup> $\textcolor{#87132E}{\textsf{(Additionally, DNI if you associate yourself with them willingly.}}$<br> $\textcolor{#87132E}{\textsf{IDGAF whether or not you are one, their ideologies are very harmful even if its under the guise of 'coping'.}}$<br> $\textcolor{#87132E}{\textsf{If you are trying to recover from such, I wish you luck. But please don't talk to or even sit near me.)}}$ </sup><br>
             $\textcolor{#87132E}{\textsf{People who are rude for no reason.}}$ <br>
-            $\textcolor{#9E233F}{\textsf{Proper DNI on my straw}}$ <br>
+            $\textcolor{#9E233F}{\textsf{〚 Proper DNI on my straw 〛}}$ <br>
              </details>
 <details>
-      <summary>$\textcolor{#87132E}{\textsf{Blinkies, Stamps and Nominations}}$</summary><br>
+      <summary>$\textcolor{#87132E}{\textsf{〚 Blinkies, Stamps and Nominations 〛}}$</summary><br>
       $\textcolor{#9E233F}{\textsf{More will be added when I actually feel like making some lolololol}}$
       <p>
       <br>
