@@ -27,7 +27,7 @@ $\textcolor{#87132E}{\textsf{Residential Vampire ⋆ ADULT ⋆ Blot/Sprout Fictk
       <summary>$\textcolor{#87132E}{\textsf{DNI}}$</summary>
            $\textcolor{#87132E}{\textsf{✦ Basic DNI (Bigots)}}$ <br>
            $\textcolor{#87132E}{\textsf{✦ Proshippers/Darkshippers}}$ <br>
-            <sup>(Additionally, DNI if you associate yourself with them willingly. IDGAF whether or not you are one, their ideologies are very harmful even if its under the guise of 'coping'. If you are trying to recover from such, I wish you luck. But please don't talk to or even sit near me.) </sup><br>
+            <sup> $\textcolor{#87132E}{\textsf{(Additionally, DNI if you associate yourself with them willingly. IDGAF whether or not you are one, their ideologies are very harmful even if its under the guise of 'coping'. If you are trying to recover from such, I wish you luck. But please don't talk to or even sit near me.)}}$ </sup><br>
              </details>
 <details>
       <summary>$\textcolor{#87132E}{\textsf{Blinkies and Stamps}}$</summary>
