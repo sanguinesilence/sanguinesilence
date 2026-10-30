@@ -1,8 +1,12 @@
 
 <div id=header align=center>
       <img src=https://file.garden/aKzMGI-7QmDUaY89/githeaderr.png width=78%>
-    </div>
-   
+
+      
+</div>
+ <div id=text align=center>  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1000&pause=2000&color=87132E&center=true&vCenter=true&multiline=true&width=500&height=100&lines=With+one+fatal+kiss+of+exquisite+bliss%2C;your+body+is+left+pale+in+the+wake.;But+the+vampyre+catalepsy+is+brief...;And+pretty+soon%2C;you'll+join+the+feast+of+blood.&groups=2%2C3" alt="Typing SVG" /></a>
+ </div>
+ 
 <div id=desc align=center>
       <img src=https://file.garden/aKzMGI-7QmDUaY89/divs/guh.gif><br>
       <br>
