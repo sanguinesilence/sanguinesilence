@@ -28,7 +28,7 @@ $\textcolor{#87132E}{\textsf{Residential Vampire ⋆ ADULT ⋆ Blot/Sprout Fictk
            $\textcolor{#87132E}{\textsf{✦ Basic DNI (Bigots).}}$ <br>
             $\textcolor{#87132E}{\textsf{✦ Qwel and/or Rox defenders/apologists.}}$ <br>
             $\textcolor{#87132E}{\textsf{✦ Anyone who uses generative AI willingly, including chatbots.}}$
-           $\textcolor{#87132E}{\textsf{✦ Proshippers/Darkshippers.}}$ <br>
+          <br>  $\textcolor{#87132E}{\textsf{✦ Proshippers/Darkshippers.}}$ <br>
             <sup> $\textcolor{#87132E}{\textsf{(Additionally, DNI if you associate yourself with them willingly.}}$<br> $\textcolor{#87132E}{\textsf{IDGAF whether or not you are one, their ideologies are very harmful even if its under the guise of 'coping'.}}$<br> $\textcolor{#87132E}{\textsf{If you are trying to recover from such, I wish you luck. But please don't talk to or even sit near me.)}}$ </sup><br>
             $\textcolor{#87132E}{\textsf{✦ People who are rude for no reason.}}$ <br>
             <br>
