@@ -49,7 +49,8 @@ $\textcolor{#87132E}{\textsf{Residential Vampire ⋆ ADULT ⋆ PT'S Blot.}}$
       <a href="https://github.com/piddlesjet#:~:text=Minos%20prime%20(ULTRAKILLS)%20!-,sanguinesilence,-is%20Pony%20Town%E2%80%99s"><img src=https://file.garden/aKzMGI-7QmDUaY89/image_2026-11-01_195102877.png></a><br>
       <a href="https://github.com/Ponytowns-treats#pts-chars-:~:text=PTS%20CHARS%20!-,%40sanguinesilence,-is%20Ponytowns%20Blot"><img src=https://file.garden/aKzMGI-7QmDUaY89/image_2026-11-01_194820000.png></a><br>
       <a href="https://github.com/pts-r0ttingeyes#:~:text=sanguinesilence%20as%20blot%20(%20dandy%20%E2%80%99%20s%20world%20).%C2%A0"><img src=https://file.garden/aKzMGI-7QmDUaY89/image_2026-11-02_155457064.png></a><br>
-      <a href="https://github.com/Ponytowns-rewards#:~:text=is%20pt%27s%20blot%20from%20dandy%27s%20world!"><img width="408" height="42" alt="image" src="https://github.com/user-attachments/assets/4bbb61b7-bb55-4942-8187-cb43d19ad122" /></a>
+      <a href="https://github.com/Ponytowns-rewards#:~:text=is%20pt%27s%20blot%20from%20dandy%27s%20world!"><img width="408" height="42" alt="image" src="https://github.com/user-attachments/assets/1e4cf199-01de-47fc-bd2f-172b9ec51982" />
+</a>
 
             
 <img src=https://file.garden/aKzMGI-7QmDUaY89/48349a7c.gif> <br>
