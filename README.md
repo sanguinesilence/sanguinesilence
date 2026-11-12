@@ -53,6 +53,7 @@ $\textcolor{#87132E}{\textsf{Residential Vampire ⋆ ADULT ⋆ PT'S Blot.}}$
       <a href="https://github.com/Knox-Event#:~:text=%5B%F0%9D%90%8B%F0%9D%90%A2%F0%9D%90%9F%F0%9D%90%9E%20%F0%9D%90%88%F0%9D%90%AC%20%F0%9D%90%92%F0%9D%90%AD%F0%9D%90%AB%F0%9D%90%9A%F0%9D%90%A7%F0%9D%90%A0%F0%9D%90%9E%5D-,%E3%80%98%F0%9F%A9%B8%E3%80%99,-%40%F0%9D%90%AC%F0%9D%90%9A%F0%9D%90%A7%F0%9D%90%A0%F0%9D%90%AE%F0%9D%90%A2%F0%9D%90%A7%F0%9D%90%9E%F0%9D%90%AC%F0%9D%90%A2%F0%9D%90%A5%F0%9D%90%9E%F0%9D%90%A7%F0%9D%90%9C%F0%9D%90%9E"><img src="https://file.garden/aKzMGI-7QmDUaY89/pngs/nominations/image_2026-11-08_003524281.png"></a>
 </a>
       <a href ="https://github.com/pony-town-nominations#:~:text=is%20pony%20town%27s-,BLOT,-(DANDY%27S%20WORLD)"><img src=https://file.garden/aKzMGI-7QmDUaY89/pngs/nominations/image_2026-11-11_204318923.png></a>
+      <a href="https://github.com/pt-everypony#:~:text=(Deltarune).%E1%90%9F-,%E0%B2%84,-sanguinesilence%20is%20pony"><img src="https://file.garden/aKzMGI-7QmDUaY89/pngs/nominations/image_2026-11-12_042123878.png"></a>
 
             
 <img src=https://file.garden/aKzMGI-7QmDUaY89/48349a7c.gif> <br>
