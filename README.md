@@ -19,7 +19,7 @@ $\textcolor{#87132E}{\textsf{╰┈➤}}$ <img src=https://file.garden/aKzMGI-7Q
     <br> 
 $\textcolor{#87132E}{\textsf{Residential Vampire ⋆ ADULT ⋆ PT'S Blot.}}$
      <br> $\textcolor{#87132E}{\textsf{꒷꒦︶}}$ 
-           $\textcolor{#87132E}{\textsf{Inspo is okay, but NEVER fully copy my skins.}}$
+           $\textcolor{#87132E}{\textsf{Inspo is okay, but please don't fully copy my skins.}}$
 </p>
       <img src=https://file.garden/aKzMGI-7QmDUaY89/divs/crossess.gif><br>
       <br>
