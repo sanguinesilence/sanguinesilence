@@ -55,6 +55,7 @@ $\textcolor{#87132E}{\textsf{Residential Vampire ⋆ ADULT ⋆ PT'S Blot.}}$
       <a href="https://github.com/pt-everypony#:~:text=(Deltarune).%E1%90%9F-,%E0%B2%84,-sanguinesilence%20is%20pony"><img src="https://file.garden/aKzMGI-7QmDUaY89/pngs/nominations/image_2026-11-12_042123878.png"></a><br>
       <a href="https://github.com/pt-everypony#:~:text=sanguinesilence%20%26%20ASTROSLAMENT"><img src="https://file.garden/aKzMGI-7QmDUaY89/pngs/nominations/image_2026-11-12_042957430.png"></a><br>
       <a href="https://github.com/pt-ship-nominations#:~:text=sanguinesilence%20as%20Ponytown%27s%20%E2%8B%86%E2%94%81-,Blot,-!%20%2D%20Dandy%27s%20World"><img src=https://file.garden/aKzMGI-7QmDUaY89/pngs/nominations/image_2026-11-23_231907240.png></a><br>
+      <a href="https://github.com/pt-ship-nominations#:~:text=Ponytown%27s%20%E2%8B%86%E2%94%81%20Blot%20%26%20Astro!%20(-,NewMoon,-)%20%2D%20Dandy%27s%20World"><img src=https://file.garden/aKzMGI-7QmDUaY89/pngs/nominations/image_2026-11-23_232236905.png></a><br>
 
             
 <img src=https://file.garden/aKzMGI-7QmDUaY89/48349a7c.gif> <br>
