@@ -57,6 +57,7 @@ $\textcolor{#87132E}{\textsf{Residential Vampire ⋆ ADULT ⋆ PT'S Blot.}}$
       <a href="https://github.com/pt-everypony#:~:text=sanguinesilence%20%26%20ASTROSLAMENT"><img src="https://file.garden/aKzMGI-7QmDUaY89/pngs/nominations/image_2026-11-12_042957430.png"></a><br>
       <a href="https://github.com/pt-ship-nominations#:~:text=sanguinesilence%20as%20Ponytown%27s%20%E2%8B%86%E2%94%81-,Blot,-!%20%2D%20Dandy%27s%20World"><img src=https://file.garden/aKzMGI-7QmDUaY89/pngs/nominations/image_2026-11-23_231907240.png></a><br>
       <a href="https://github.com/pt-ship-nominations#:~:text=Ponytown%27s%20%E2%8B%86%E2%94%81%20Blot%20%26%20Astro!%20(-,NewMoon,-)%20%2D%20Dandy%27s%20World"><img src=https://file.garden/aKzMGI-7QmDUaY89/pngs/nominations/image_2026-11-23_232236905.png></a><br>
+      <a href="https://github.com/marvelous-pt#:~:text=is%20Pony%20Town%27s-,Blot,-(%E1%B4%85%E1%B4%80%C9%B4%E1%B4%85%CA%8F%27s%20%E1%B4%A1%E1%B4%8F%CA%80%CA%9F%E1%B4%85)%20!"><img src=https://file.garden/aKzMGI-7QmDUaY89/pngs/nominations/image_2026-11-25_131322540.png></a><br>
 
             
 <img src=https://file.garden/aKzMGI-7QmDUaY89/48349a7c.gif> <br>
